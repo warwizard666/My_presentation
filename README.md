@@ -7,4 +7,4 @@
 4. Ну а вообще, мне интересно всё новое.
 
 ## Моё фото
-![](https://drive.google.com/file/d/1FfOvWtta729azUdxozeK6cz0T4IbiWi-/view?usp=drive_link)
+![Я и Робот](d:/%D1%84%D0%BE%D1%82%D0%BE%20%D0%B8%20%D0%B2%D0%B8%D0%B4%D0%B5%D0%BE/%D1%84%D0%BE%D1%82%D0%BE/IMG_20230603_211419.jpg)
